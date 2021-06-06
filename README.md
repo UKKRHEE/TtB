@@ -5,4 +5,5 @@ Train to Busan에 오신 것을 환영합니다!
 부디 즐겁게 플레이 해주세요!
 
 
-노무현
+-UKKRHEE
+-kkshunp
